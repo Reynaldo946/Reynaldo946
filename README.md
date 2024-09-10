@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on (yet to be disclosed)
 - 📫 How to reach me: a00839919@tec.mx
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Did you know vaporeon is, in terms of pokemon-
+- ⚡ Fun fact: Did you know that in terms of human pokemon-
 
 <!---
 Reynaldo946/Reynaldo946 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
